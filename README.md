@@ -28,7 +28,7 @@ I'm focused on solving real-world business problems with the power of data. With
 
 ## 📫 Let's Connect
 
-- 🌐 [LinkedIn](www.linkedin.com/in/jahnavigupta06
+- 🌐 [LinkedIn](www.linkedin.com/in/jahnavigupta06)
 
 - 📧 [Email](mailto:jahnavigupta0610@gmail.com)
 
